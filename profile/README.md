@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-🙋‍♀️ These are prayogaha performed by <a href="https://github.com/satyasaadhak">SatyaSaadha | Truth Seeker...</a>
+🙋‍♀️ These are prayogaha performed by <a href="https://github.com/satyasaadhak">SatyaSaadhak | Truth Seeker...</a>
 
 <!--
 
